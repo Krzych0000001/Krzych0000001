@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Krzych0000001
+- 👋 Hi, I’m Black Goku (Krzyhixq)
 - 👀 I’m interested in games
 - 🌱 I’m currently learning english language
 - 📫 Discord DM: idokox2137
